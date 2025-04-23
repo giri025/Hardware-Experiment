@@ -11,7 +11,9 @@
 
 ## DM
 ![WhatsApp Image 2025-04-22 at 14 47 25_eabb1f2c](https://github.com/user-attachments/assets/37232780-1d2d-4dbd-b91c-5c43de3ca3f1)
-## ASK
-![WhatsApp Image 2025-04-22 at 14 47 23_c6d4b7bc](https://github.com/user-attachments/assets/b8e5e017-fe3f-418f-88d7-62ef13d0fe90)
+
+## Line Coding
+![WhatsApp Image 2025-04-23 at 20 43 38_934bf5df](https://github.com/user-attachments/assets/9fa6d36e-df9b-4aa9-b0a9-fee7b92260fc)
+
 
 
